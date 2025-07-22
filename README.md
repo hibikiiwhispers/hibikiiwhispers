@@ -6,7 +6,7 @@
 
 - LYRA OR KOTONE - Pokémon ༉‧₊˚. (SHE'S LITERALLY ME)
 
-![gif](https://media1.tenor.com/m/1NXdN0Ikj_cAAAAC/pokemon-masters.gif)
+![gif](https://media1.tenor.com/m/X2tndmzNmuAAAAAC/pokemon-pokemonmasters.gif)
 
 - SILVER - Pokémon ༉‧₊˚.
 
