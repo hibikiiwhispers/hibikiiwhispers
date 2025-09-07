@@ -1,5 +1,3 @@
-𝐍𝐎𝐍𝐄 𝐎𝐅 𝐌𝐘 𝐎𝐂𝐒 𝐑𝐄𝐏𝐑𝐄𝐒𝐄𝐍𝐓 𝐌𝐄, 𝐓𝐇𝐄𝐘 𝐀𝐑𝐄 𝐎𝐍𝐋𝐘 𝐎𝐂𝐒, 𝐈𝐍 𝐀𝐍𝐘 𝐂𝐀𝐒𝐄 𝐓𝐇𝐄 𝐎𝐍𝐋𝐘 𝐑𝐄𝐏𝐑𝐄𝐒𝐄𝐍𝐓𝐀𝐓𝐈𝐎𝐍 𝐎𝐅 𝐌𝐄 𝐈𝐒 𝐌𝐘 𝐒𝐎𝐍𝐀!!!
-
 ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
 
 ![gif](https://media.tenor.com/sj3IHPPDOxEAAAAi/eevee-eevee-evolution.gif) ![gif](https://media.tenor.com/mSXXlRZrt3kAAAAj/eeveelution-eevee-evolution.gif) ![gif](https://media.tenor.com/2DdMTd9WbCkAAAAj/eeveelution-eevee-evolution.gif) ![gif](https://media.tenor.com/PB_v8oFCde4AAAAi/eeveelution-eevee-evolution.gif) ![gif](https://media.tenor.com/Zsu1LBqCXdMAAAAj/eeveelution-eevee-evolution.gif) ![gif](https://media.tenor.com/0bIjwnKhaOcAAAAj/jolteon-pokemon-jolteon.gif) ![gif](https://media.tenor.com/HRLIyZsxrYQAAAAj/eeveelution-eevee-evolution.gif) ![gif](https://media.tenor.com/cERJ7M_mH-cAAAAi/eeveelution-eevee-evolution.gif)
