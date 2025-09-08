@@ -6,6 +6,14 @@
 
 𝐀𝐋𝐋 𝐌𝐘 𝐅𝐀𝐕𝐎𝐑𝐈𝐓𝐄 𝐂𝐇𝐀𝐑𝐀𝐂𝐓𝐄𝐑𝐒 𝐁𝐄𝐂𝐀𝐔𝐒𝐄 𝐘𝐄𝐒!! (from every fandom i'm in)
 
+- TWO TIME - Forsaken ༉‧₊˚.
+
+![gif](https://media1.tenor.com/m/GGMutaTHXqQAAAAC/two-time-forsaken.gif)
+
+- SHEDLETSKY - Forsaken ༉‧₊˚.
+
+![gif](https://media1.tenor.com/m/1789_TUlw4UAAAAC/forsaken-roblox-telamon.gif)
+
 - LYRA OR KOTONE - Pokémon ༉‧₊˚. (SHE'S LITERALLY ME)
 
 ![gif](https://media1.tenor.com/m/X2tndmzNmuAAAAAC/pokemon-pokemonmasters.gif)
@@ -92,4 +100,4 @@
 
 𝐓𝐇𝐀𝐓'𝐒 𝐀𝐋𝐋! (𝐟𝐨𝐫 𝐧𝐨𝐰)
 
-![gif](https://media.tenor.com/Lj4fDWuicYcAAAAj/eevee.gif) ![image](https://i.pinimg.com/736x/1d/d2/a3/1dd2a3ceca576e3f323b34f36fee2d70.jpg)
+![gif](https://media1.tenor.com/m/u1vRrGfC9YAAAAAd/gubby-two-time.gif)
