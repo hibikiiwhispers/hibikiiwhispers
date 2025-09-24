@@ -1,3 +1,5 @@
+![gif](https://media1.tenor.com/m/YuhNAENTx98AAAAC/guest-1337-forsaken.gif)
+
 ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
 
 ![gif](https://media.tenor.com/sj3IHPPDOxEAAAAi/eevee-eevee-evolution.gif) ![gif](https://media.tenor.com/mSXXlRZrt3kAAAAj/eeveelution-eevee-evolution.gif) ![gif](https://media.tenor.com/2DdMTd9WbCkAAAAj/eeveelution-eevee-evolution.gif) ![gif](https://media.tenor.com/PB_v8oFCde4AAAAi/eeveelution-eevee-evolution.gif) ![gif](https://media.tenor.com/Zsu1LBqCXdMAAAAj/eeveelution-eevee-evolution.gif) ![gif](https://media.tenor.com/0bIjwnKhaOcAAAAj/jolteon-pokemon-jolteon.gif) ![gif](https://media.tenor.com/HRLIyZsxrYQAAAAj/eeveelution-eevee-evolution.gif) ![gif](https://media.tenor.com/cERJ7M_mH-cAAAAi/eeveelution-eevee-evolution.gif)
@@ -5,6 +7,10 @@
 ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
 
 𝐀𝐋𝐋 𝐌𝐘 𝐅𝐀𝐕𝐎𝐑𝐈𝐓𝐄 𝐂𝐇𝐀𝐑𝐀𝐂𝐓𝐄𝐑𝐒 𝐁𝐄𝐂𝐀𝐔𝐒𝐄 𝐘𝐄𝐒!! (from every fandom i'm in)
+
+- GUEST 1337 - Forsaken ༉‧₊˚.
+
+![gif](https://media1.tenor.com/m/fcrSB93ne2UAAAAd/guest-1337-forsaken.gif)
 
 - TWO TIME - Forsaken ༉‧₊˚.
 
