@@ -1,8 +1,6 @@
-![gif](https://media1.tenor.com/m/YuhNAENTx98AAAAC/guest-1337-forsaken.gif)
+![image](https://64.media.tumblr.com/882d97cecdb3403cd739ccc6b013f3a1/e755ae029ad44057-7d/s2048x3072/38ddae986899c9c5c5d37188936c806731a1b998.pnj)
 
-˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
-
-![gif](https://media.tenor.com/sj3IHPPDOxEAAAAi/eevee-eevee-evolution.gif) ![gif](https://media.tenor.com/mSXXlRZrt3kAAAAj/eeveelution-eevee-evolution.gif) ![gif](https://media.tenor.com/2DdMTd9WbCkAAAAj/eeveelution-eevee-evolution.gif) ![gif](https://media.tenor.com/PB_v8oFCde4AAAAi/eeveelution-eevee-evolution.gif) ![gif](https://media.tenor.com/Zsu1LBqCXdMAAAAj/eeveelution-eevee-evolution.gif) ![gif](https://media.tenor.com/0bIjwnKhaOcAAAAj/jolteon-pokemon-jolteon.gif) ![gif](https://media.tenor.com/HRLIyZsxrYQAAAAj/eeveelution-eevee-evolution.gif) ![gif](https://media.tenor.com/cERJ7M_mH-cAAAAi/eeveelution-eevee-evolution.gif)
+HI HI HI I'M BLUE OR HIBIKI, I REALLY LOVE FORSAKEN AND POKEMON. I'M A SILLY GUEST 1337 YUME (OCXCANON) AND I HAVE A BEAUTIFUL AND PERFECT GIRLFRIEND!!
 
 ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
 
@@ -14,7 +12,7 @@
 
 - TWO TIME - Forsaken ༉‧₊˚.
 
-![gif](https://media1.tenor.com/m/GGMutaTHXqQAAAAC/two-time-forsaken.gif)
+![gif](https://media1.tenor.com/m/OtSOeJ8nKL0AAAAC/twotime-sleepy.gif)
 
 - SHEDLETSKY - Forsaken ༉‧₊˚.
 
@@ -106,4 +104,4 @@
 
 𝐓𝐇𝐀𝐓'𝐒 𝐀𝐋𝐋! (𝐟𝐨𝐫 𝐧𝐨𝐰)
 
-![gif](https://media1.tenor.com/m/u1vRrGfC9YAAAAAd/gubby-two-time.gif)
+![image](https://64.media.tumblr.com/1d04d9d73b33d21437132c7124e8c8a8/e755ae029ad44057-23/s2048x3072/47300fa85a558bffbc277ce443e07258a0fbe0da.pnj)
