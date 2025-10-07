@@ -1,6 +1,6 @@
 ![image](https://64.media.tumblr.com/882d97cecdb3403cd739ccc6b013f3a1/e755ae029ad44057-7d/s2048x3072/38ddae986899c9c5c5d37188936c806731a1b998.pnj)
 
-HI HI HI I'M BLUE OR HIBIKI, I REALLY LOVE FORSAKEN AND POKEMON. I'M A SILLY GUEST 1337 YUME (OCXCANON) AND I HAVE A BEAUTIFUL AND PERFECT GIRLFRIEND!!
+HI HI HI I'M BLUE OR HIBIKI, I REALLY LOVE FORSAKEN AND POKEMON. I'M A SILLY GUEST 1337 YUME (OCXCANON)
 
 Feel free to interact with me, I love drawing and I usually post my art on twitter! (BlueeWisp , follow if u want hehe)
 
