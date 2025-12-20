@@ -1,24 +1,24 @@
 ![image](https://64.media.tumblr.com/882d97cecdb3403cd739ccc6b013f3a1/e755ae029ad44057-7d/s2048x3072/38ddae986899c9c5c5d37188936c806731a1b998.pnj)
 
-HI HI HI I'M BLUE OR HIBIKI, I REALLY LOVE FORSAKEN AND POKEMON. I'M A SILLY GUEST 1337 YUME (OCXCANON)
+HI HI HI I'M ARI OR HIBIKI, I REALLY LOVE POKEMON AND STRANGER THINGS
 
-Feel free to interact with me, I love drawing and I usually post my art on twitter! (BlueeWisp , follow if u want hehe)
+Feel free to interact with me, I love drawing and I usually post my art on twitter! (SSillyBluee , follow if u want hehe)
 
 ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
 
 𝐀𝐋𝐋 𝐌𝐘 𝐅𝐀𝐕𝐎𝐑𝐈𝐓𝐄 𝐂𝐇𝐀𝐑𝐀𝐂𝐓𝐄𝐑𝐒 𝐁𝐄𝐂𝐀𝐔𝐒𝐄 𝐘𝐄𝐒!! (from every fandom i'm in)
 
-- GUEST 1337 - Forsaken ༉‧₊˚.
+- WILL BYERS - Stranger Things ༉‧₊˚. (my boy, i'm him and he's me)
 
-![gif](https://media1.tenor.com/m/fcrSB93ne2UAAAAd/guest-1337-forsaken.gif)
+![gif](https://media1.tenor.com/m/qMp5fKN2msUAAAAC/will-byers-stranger-things.gif)
 
-- TWO TIME - Forsaken ༉‧₊˚.
+- NANCY WHEELER - Stranger Things ༉‧₊˚.
 
-![gif](https://media1.tenor.com/m/OtSOeJ8nKL0AAAAC/twotime-sleepy.gif)
+![gif](https://media1.tenor.com/m/rLI3wb7N4PYAAAAC/netflix-stranger-things.gif)
 
-- SHEDLETSKY - Forsaken ༉‧₊˚.
+- ERICA SINCLAIR - Stranger Things ༉‧₊˚.
 
-![gif](https://media1.tenor.com/m/1789_TUlw4UAAAAC/forsaken-roblox-telamon.gif)
+![gif](https://media1.tenor.com/m/FJlr6eRIXg0AAAAC/caralilis-johyunzen.gif)
 
 - LYRA OR KOTONE - Pokémon ༉‧₊˚. (SHE'S LITERALLY ME)
 
