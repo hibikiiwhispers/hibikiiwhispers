@@ -18,7 +18,7 @@ Feel free to interact with me, I love drawing and I usually post my art on twitt
 
 - ERICA SINCLAIR - Stranger Things ༉‧₊˚.
 
-![gif](https://media1.tenor.com/m/FJlr6eRIXg0AAAAC/caralilis-johyunzen.gif)
+![gif](https://media1.tenor.com/m/tNEZLdj8FD8AAAAC/scared-erica-sinclair.gif)
 
 - LYRA OR KOTONE - Pokémon ༉‧₊˚. (SHE'S LITERALLY ME)
 
